@@ -1,2 +1,0 @@
-# orangetech
-Orange Technologies Incorporated
